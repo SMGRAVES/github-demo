@@ -23,6 +23,8 @@ Here is my own creative message. From Wade.
 I hope this works.
 Changey change change
 
+HEY CHange is great for the Arcade  beep beep beep! - Scott
+
 
 
 blah blah blah
